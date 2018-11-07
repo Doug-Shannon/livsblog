@@ -5,8 +5,6 @@ description = ""
 draft = false
 +++
 
-# How I See Love
-
 How do I see love? Well to start a lot of people think love as being kind and caring for each other that’s not what I think it means. Do you ever think about when you say I love you to someone, well most people don’t notice whed they say that what it means to me is  An intense feeling of deep affection_
 
 so lets say I went up to one of my old friends when they did something nice for me and I said I ove you so you have an intense feeling of affection for an old friend that only did one nice thing well theres probably a reason you guys dont hang out anymore so you should probably just stick with thankyou that was really nice of you.....now the only reason I brought that up was one of my old friends did that to me a couple days ago and it made me start thinking why would someoned say "I love you" if you only dId something nice for them plus they're just old friends
