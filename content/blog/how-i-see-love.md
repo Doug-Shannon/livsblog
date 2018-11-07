@@ -14,4 +14,4 @@ my second example is, lets say you just like someone its the first day you like 
 this would be an example of love say you do foster care and you get a little girl/boy and you just like them and everything beacuse they're cute and sweet and you get to take care of them but then this child is like a part of your family so you start to love them like they're in your family well thats an example of love and I hope you learned some things from this blog of how I see love 
 
 Sincerely,
-Olivia Shannon
+LivLu
